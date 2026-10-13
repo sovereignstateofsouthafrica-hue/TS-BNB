@@ -1,4 +1,4 @@
-# TS-BNB
+# TS-BNB Crypto Token
 TSIBAWCOIN 1Oz T
 BINANCE TOKEN
 Etherscan Vestige Conin of Siba
